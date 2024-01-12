@@ -14,3 +14,9 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+I'm Maggie (she/her) 😊
+
+I'm a student in Vancouver, BC studying Interaction Design at Emily Carr, soon to graduate with a Bachelor's of Design! 🎉
+
+I'm currently working on my grad project: exploring intuitive task-management systems to support the cycle of executive dysfunction.
+
